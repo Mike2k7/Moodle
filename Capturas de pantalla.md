@@ -18,3 +18,5 @@
 ---
 <img width="1332" height="899" alt="imatge" src="https://github.com/user-attachments/assets/712f74a7-9023-447d-94d5-00682e8c3cd8" />
 ---
+<img width="1332" height="899" alt="imatge" src="https://github.com/user-attachments/assets/f94cf8f8-3d00-4ac4-993a-5bab3458e6e6" />
+---
