@@ -16,3 +16,5 @@
 ---
 <img width="1854" height="1001" alt="Captura desde 2026-04-21 12-49-46" src="https://github.com/user-attachments/assets/dc959d77-060d-466a-a1da-ae2a82a11de4" />
 ---
+<img width="1332" height="899" alt="imatge" src="https://github.com/user-attachments/assets/712f74a7-9023-447d-94d5-00682e8c3cd8" />
+---
