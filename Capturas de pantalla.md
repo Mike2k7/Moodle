@@ -20,3 +20,11 @@
 ---
 <img width="1332" height="899" alt="imatge" src="https://github.com/user-attachments/assets/f94cf8f8-3d00-4ac4-993a-5bab3458e6e6" />
 ---
+<img width="1332" height="899" alt="Captura de pantalla de 2026-04-28 13-43-48" src="https://github.com/user-attachments/assets/4c0de605-5fdf-4d8c-b5cb-030730c8abc3" />
+---
+<img width="1332" height="899" alt="Captura de pantalla de 2026-04-28 13-44-11" src="https://github.com/user-attachments/assets/3cd6886d-6086-4757-94c7-8d88fe9b341c" />
+---
+<img width="1332" height="899" alt="Captura de pantalla de 2026-04-28 13-44-37" src="https://github.com/user-attachments/assets/ad99e962-868e-4717-8cf0-1fb5fab697fc" />
+---
+<img width="1332" height="899" alt="Captura de pantalla de 2026-04-28 13-45-06" src="https://github.com/user-attachments/assets/b1f0821e-019b-4e21-8740-5cd67c904a5e" />
+---
