@@ -1,1 +1,18 @@
-
+<img width="1854" height="1001" alt="Captura desde 2026-04-21 14-29-38" src="https://github.com/user-attachments/assets/1fdbcc2f-8769-42db-9636-1e21c1ffcfa2" />
+---
+<img width="1854" height="1001" alt="Captura desde 2026-04-21 13-44-32" src="https://github.com/user-attachments/assets/f5b30c0e-561e-45a6-8625-ddbefef71a7a" />
+---
+<img width="1854" height="1001" alt="Captura desde 2026-04-21 13-17-45" src="https://github.com/user-attachments/assets/1ddbe521-f151-4dc2-8eb8-34657b50041d" />
+---
+<img width="1854" height="1001" alt="Captura desde 2026-04-21 13-13-21" src="https://github.com/user-attachments/assets/4676141b-b1d3-47a0-b5a0-a0420102a556" />
+---
+<img width="1854" height="1001" alt="Captura desde 2026-04-21 13-01-16" src="https://github.com/user-attachments/assets/56f26e1d-0890-42b5-ac1e-9dbf7af42bc7" />
+---
+<img width="1854" height="1001" alt="Captura desde 2026-04-21 12-53-21" src="https://github.com/user-attachments/assets/b4d28198-2b39-4f88-aa09-a0b485e3b2e7" />
+---
+<img width="1854" height="1001" alt="Captura desde 2026-04-21 12-52-58" src="https://github.com/user-attachments/assets/5218ebc6-b9d8-407a-ac61-5e9dba075064" />
+---
+<img width="1854" height="1001" alt="Captura desde 2026-04-21 12-50-12" src="https://github.com/user-attachments/assets/937dc254-6ff4-4e0f-9bf3-20a3afebea54" />
+---
+<img width="1854" height="1001" alt="Captura desde 2026-04-21 12-49-46" src="https://github.com/user-attachments/assets/dc959d77-060d-466a-a1da-ae2a82a11de4" />
+---
